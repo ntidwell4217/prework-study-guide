@@ -1,4 +1,4 @@
-# Prework Study Guide WEb Page>
+# Prework Study Guide WEb Page
 
 ## Description
 
